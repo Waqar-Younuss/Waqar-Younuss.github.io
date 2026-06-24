@@ -1,6 +1,6 @@
-WAQAR YOUNUS
+**WAQAR YOUNUS
 Lead Technical Talent Acquisition Specialist
-Semiconductor • AI Infrastructure • Life Sciences
+Semiconductor • AI Infrastructure • Life Sciences**
 
 📍 Bangalore, India
 📧 youneswaqar004@gmail.com
